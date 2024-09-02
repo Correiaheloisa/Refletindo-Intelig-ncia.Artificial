@@ -1,1 +1,1 @@
-# Refletindo-Intelig-ncia.Artificial
+# Refletindo-Inteligencia.Artificial
